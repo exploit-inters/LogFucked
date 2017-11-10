@@ -1,0 +1,1 @@
+LogFucked script by MrSqar
